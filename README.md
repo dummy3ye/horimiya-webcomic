@@ -1,1 +1,0 @@
-# horimiya-webcomic
